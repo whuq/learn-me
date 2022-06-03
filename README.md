@@ -1,2 +1,0 @@
-# learn-me
-Learn me 🤝
